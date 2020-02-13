@@ -1,0 +1,1 @@
+*https://kostanios.github.io/rsschool-cv/cv
